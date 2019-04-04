@@ -9,3 +9,5 @@ https://pedagogiaaopedaletra.com/contribuicoes-da-introducao-das-novas-tecnologi
 http://www.diaadiaeducacao.pr.gov.br/portals/pde/arquivos/1381-8.pdf
 
 https://editorarealize.com.br/revistas/conedu/trabalhos/TRABALHO_EV056_MD1_SA19_ID813_15082016151857.pdf
+
+https://repositorio.ufsm.br/bitstream/handle/1/498/Koch_Marlene_Zimmermann.pdf?sequence=1
